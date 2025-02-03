@@ -1,10 +1,11 @@
 ***GROUP 3***
+
 Kevin Omondi - 22/04801
 Milka Wangechi - 22/01715
-Gideon Koch - 22/
-Daniel Chege - 22/
+Gideon Koch - 23/00751
+Daniel Chege - 22/08659
 Cyprian Njenga - 24/09307
-Chong Maker 22/00302
+Chong Maker - 23/00302
 
 
 
